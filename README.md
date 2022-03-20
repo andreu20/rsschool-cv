@@ -1,3 +1,3 @@
-https://andreu20.github.io/rsschool-cv/cv
+https://andreu20.github.io/rsschool-cv/
 
 22
